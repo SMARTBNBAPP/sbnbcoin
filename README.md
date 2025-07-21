@@ -41,25 +41,42 @@ We're not here to hype short-term pumps. We're here to build long-term value, tr
 Whether you're a crypto enthusiast, trader, or just curious about the future of finance.
 
 This is your chance to get in early.
+
 🔹 Buy & Hold SBNB
+
 🔹 Join our Telegram & Twitter
+
 🔹 Stake & Earn Rewards
+
 🔹 Refer friends and earn bonuses
 
+
 🛠️ What's Next for SBNB?
+
 ✅ Launchpad integration
+
 ✅ CEX listings
+
 ✅ DApp ecosystem
+
 ✅ NFT drops
+
 ✅ Global AMAs and community events
 
 🎯 Join the SMART BNB Revolution Today
 SBNB isn’t just another coin — it’s a movement. Be part of a smarter future, powered by community and driven by purpose.
 
+
 🌐 Visit: https://www.sbnb.app
+
 🐦 Twitter: https://x.com/smartbnbxplorer
+
 📘 Facebook: https://www.facebook.com/smartbnb
+
 🔗 LinkedIn: https://www.linkedin.com/company/newsmartbnb/
+
 📺 YouTube: https://www.youtube.com/@newSmartbnb
+
 📸 Instagram: https://www.instagram.com/smartbnbxplorer/
+
 📊 BscScan: https://bscscan.com/token/0x1e2a49251c36216d57751ee35d061e349f90d1c1
